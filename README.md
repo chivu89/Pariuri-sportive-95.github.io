@@ -1,1 +1,1 @@
-# Pariuri-sportive-95.github.io
+# Pariiuri-spoortive-1995.github.io
